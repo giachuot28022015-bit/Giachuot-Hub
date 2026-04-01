@@ -1,2 +1,0 @@
-# Giachuot-Hub
-Giachuot Hub
